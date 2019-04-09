@@ -11,7 +11,7 @@
 
 ## Using this phone
 
-- If it rings, answer it. Be polite. Never hang up on someone.
+- If it rings, answer it. Be polite. Never hang up on someone you know.
 - Treat it carefully and respectfully. If it breaks, you are responsible for its repair.
 - You understand you are responsible for knowing where your phone is at all times and keep it charged at all times.
 - No phones at times when it’s not acceptable; during mealtimes, at the cinema or in a restaurant. Try to remember there are other ways to entertain yourself when you are waiting for someone or something.
@@ -32,8 +32,8 @@
 - Do not send threatening or mean messages to others.
 - Follow your school rules on mobile phones.
 - Do not lend your phone to anyone.
-- Promise you will tell Mum and Dad when you receive suspicious phone calls from people you don't know.
-- Do not send inappropriate photos of yourself or others to anyone else. If you see inappropriate images of anything or anyone else; delete them, close the tab, delete the app.
+- Promise you will tell Mum and Dad when you receive suspicious phone calls or messages from people you don't know.
+- If you see anything that scares you, or makes you uncomfortable, speak to Mum and Dad. You won’t be punished for asking for help.
 - Be careful about who you tell your phone number to.
 
 
@@ -45,4 +45,4 @@
 
 ## Three strikes
 
-- We will operate a three strikes and out policy. Any breach of this agreement will result in a warning. After three warnings, the phone will be removed and the contract terminated.
+- We will operate a three strikes and out policy. Any breach of this agreement will result in a warning. After three warnings, the phone will be confiscated for 24 hours.
